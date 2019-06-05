@@ -1,2 +1,3 @@
 # Hello-World-and-witness-my-memetic-existance
-well shit, I guess this works. How you fucks doing anyhow?
+well hi there.
+Don't mind me I'm just doing the tutorial
